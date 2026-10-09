@@ -1,0 +1,2 @@
+# premium-lute-bowl-001-lute-bowl-rib-bending-and-asse
+Struggling to keep track of rib measurements, steam times, and assembly sequences while your lute bowl takes shape? The Lute Bowl Rib Bending and Assembly Guide eliminates guesswork and prevents costly mistakes in your lutherie workflow.  This Notion template transforms bowl construction from chaotic note-taking into a structured, repeatable system
